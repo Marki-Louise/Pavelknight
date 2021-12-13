@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Marki_Louise
+- 👀 I’m interested in Java
+- 🌱 I’m currently learning Java
+- 💞️ I’m looking to collaborate on anyone
+- 📫 How to reach me mdzahin9890@gmail.com
